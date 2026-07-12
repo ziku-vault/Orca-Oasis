@@ -8,6 +8,9 @@ Hii! Thanks for checking out my Oasis, my space where it resonates my studies, e
 
 This website is a work in progress, so it’s constantly updating. You’ll also find summaries of my discussions and arguments here, and some experiences that I went through concerning the topics I talk about 𝜗𝜚⋆₊˚
 
-My English won't be the best especially in my personal essays—its basically ranting but make it fancy. Also, if you got offered the link to my website, do **not** share this without my permission! I only have few trusted people who know about this little blog of mine. 
+My English won't be the best especially in my personal essays. Its technically ranting but make it fancy. Moreover, if you have questions or notice in errors in my work, reach out on me on discord!
 
+Discord: keetu_821
+
+/dig
 
