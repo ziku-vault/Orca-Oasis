@@ -12,5 +12,3 @@ My English won't be the best especially in my personal essays. Its technically r
 
 Discord: keetu_821
 
-/dig
-
