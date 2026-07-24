@@ -11,6 +11,6 @@ This website is a work in progress, so it’s constantly updating! Which means s
 
 My English won't be the best especially in my personal essays, Its technically just ranting. Moreover, my generality of my work I will critique both pieces of opposing philosophy. Those who are offended or wanting to challenge my arguments, your welcome to leave or debate me in discord. Additionally, if I made any errors or you have any questions you can reach out as well.ᐟ
 
-discord: keetu_821
+discord: amorabsurdity
 
 
